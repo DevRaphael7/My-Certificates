@@ -1,4 +1,4 @@
-# My certificates
+# My certificates 🎓🏆
 
 ### Pluralsight
 
